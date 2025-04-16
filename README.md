@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on experimental projects
 - 📫 How to reach me ( I prefer note via dove)
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun fact: I'm actually a 4th gen recarnate
+- ⚡ Fun fact: I'm actually a 4th gen reincarnate
 
 <!---
 Skylar-Pitts/Skylar-Pitts is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
